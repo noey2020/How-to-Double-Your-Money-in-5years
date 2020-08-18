@@ -32,15 +32,16 @@ smart investor: A portfolio should be diversified across multiple sectors.
 
 So picking stocks to buy, I would target an industry. I know I have to inspect the 
 financial statements of the companies I want to analyze. But there are tens of thousands
-of stocks to choose from. I am overwhelmed not even starting.
+of stocks to choose from. I have to identify companies that have a favorable net debt
+position and are improving their net margins. Honestly, I am overwhelmed not even starting.
 
 Don't start from a famous company like apple. We want to target growth companies with
 potential for profit.
 
 1. Look for companies demonstrating growth like double digits. 
 2. Look at their margins.
-3. I use Fidelity Research to pull up public documents so I can make technical analysis.
-   charts, and price analysis.
+3. I use Fidelity Research to pull up public documents so I can make technical analysis,
+   fundamental analysis, charts, and price analysis.
 4. Look at earnings per share, EPS, market values, debt to equity ratios, cash flow.
 5. Look at stock price performance, dividends, etc.
 6. Listen to relevant business news.
