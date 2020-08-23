@@ -51,4 +51,14 @@ target growth companies with potential for profit.
 8. You just made a smart investment decision.
 9. Relax and enjoy life and see you in the next 5 years with double money!
 
+August 15, 2020
+
+"Thoughts for the Day" - Invest or Trade
+
+I do passive investing with Roth IRA which has zero interest rate, tax-free if you don't withdraw before 60. If I diversify into TD, interest rate is at most 5% whereas stock trading is historically 9%. If I have $500 I can use to trade without having to worry or lose sleep if I lose it, I will either choose the S&P500 or DJIA. There are many free charts to study your investment strategy. Now is the time to trade before stock prices go up with vaccine companies and reap rewards. I would select these online stock sites: TD Ameritrade, TradeStation, E*TRADE, Merrill Edge, and Fidelity. 
+
+If I buy with 500 let it roll for 30 years, it will be 500,000 dollars, without help of spreadsheet 😊
+
+You can do this while having a day job. Passive investing is whenever in your paycheck you have deductions for ira or roth ira. But if you want to earn more, you can do it yourself or through a broker. DIY means determining your risk tolerance. Are you risk averse or risk ok? Is $500 something you can use to win or lose without too much stress. For starters, the S&P(more diverse meaning safer) and DJIA(more focused on top 30 industrial) are indices to help you make a strategy. You can make an initial purchase, let it roll undeterred for the ups and downs, trading daily, or trading every week or once in a while. Or, use the services of stock brokers but they make money commissions. DIY means putting time and effort researching whether the charts or your gut feel tells you. You will have to learn the ABCs of financial accounting, financial statement analysis like financial ratios. One ratio is debt to equity. The published debt to equity in financial reports like 2 is okay meaning higher ratio indicates less solvency or having higher ratio is not good. Overall, it will depend on your overall judgement using many ratios plus experience plus "hunch". Emerging markets give the best returns. I have $500 to spare. My two cents. 😊
+
 Noel
